@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **changminmoon@naver.com**
 
-- ⚡ Fun fact **I love games and I love exercising**
+- ⚡ Fun fact **I can speak 4 different languages at a professional level**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
